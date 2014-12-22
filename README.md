@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE MOST EXcellent Historie of Lysimachus and Varrona, daughter to Syllanus, Duke of Hypata, in Thes
+
 1. TO THE RIGHT Honourable Henry VVriothesly, Earle of Southampton, and Baron of Titchfield: I. H. wisheth encrease of all vertuous and Honourable resolutions.
 
 1. To the Gentlemen Readers.
